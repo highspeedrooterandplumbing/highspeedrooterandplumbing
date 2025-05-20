@@ -63,5 +63,3 @@ Ans. Signs of a collapsed sewer line include common backups, sluggish drains, fo
 <b>Q5.How plenty does it value to replace a 20 foot sewer line?</b>
 
 Ans. Replacing a 20-foot sewer line typically expenses between $3,000 and $8,000, depending on depth, region, and technique used. Trenchless alternative may cost a little extra.
-
-Wesite link - https://hsrooterplumbing.com/sewer-repair/
